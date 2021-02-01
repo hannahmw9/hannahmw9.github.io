@@ -1,2 +1,2 @@
 # hannahmw9.github.io
-web sessions
+This is my github hosted website site. My favorite food is macaroni and cheese, I have a dog named Henry, and I cannot wait to visit Japan one day! 
